@@ -1,0 +1,1 @@
+Claro! A imagem mostra dois gatos, um preto e outro branco com manchas marrons, interagindo em um canto de uma sala. Eles parecem estar brincando ou lutando. O gato preto está parcialmente de pé, enquanto o outro gato está inclinado para trás contra a parede. A sala tem paredes brancas que estão um pouco sujas e o chão é de concreto não acabado. Espero que isso ajude!
